@@ -1,6 +1,6 @@
 (cover) ![](57175019_319474918741616_8502199518755923887_n.jpg)
 
-# ARTIST - TITLE
+# MOTHNODE_ Sparrows
 
 **Listen now:** x
 
@@ -24,3 +24,5 @@ Description.
 
 
 ## Notes
+Gathering intelligence with sex
+German = Romeos / Russian = Swallows
